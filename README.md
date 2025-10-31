@@ -20,6 +20,7 @@ Feel free to contact me on them! ;)
 <br>
 
 ### basic dni
+-----
 
 ### my fandoms that I've ever been in (or still am in):
 
@@ -30,5 +31,6 @@ Feel free to contact me on them! ;)
 that's all I can remember so far :P more in future.
 
 ### [MORE ABOUT ME](https://sbv6v.carrd.co/) | [MY WATCHED FILMS](https://letterboxd.com/sbv6v/)
+
 
 **or check my links under bio xD**
