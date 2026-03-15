@@ -27,8 +27,12 @@ Feel free to contact me on them! ;)
 ### for genius - if u racist, xenophobic, sinophobic behavior, colorism, orientalist attitudes, homophobic, transphobic, lesbiphobic, biphobic, panphobic attitudes and another LGBTQIA+(phobic), misgendering, mispronouncing, deadnaming, sexism, misogyny, ableism, bullying, religious and cultural Intolerance, If you support the war on Ukraine - pass by. <ins>***Even if you are my friends or family, and your behavior or personality trait is on this list, remember that you are not forgiven, and there are no exceptions.***</ins>
 -----
 
+<p align="center"
+<br>
 <br> <img width="500" src='https://github.com/sbv6v/sbv6v/blob/main/photo_2026-03-06_11-41-10.jpg?raw=true'>
 
+<p align="center"
+<br>
 <br> <img width="500" src='https://github.com/zefranar/zefranar/blob/main/tumblr_857e94c49e2a6c5655bba0e79000cc45_4797e467_1280.png?raw=true'>
 
 <p align="center"
@@ -54,7 +58,7 @@ that's all I can remember so far :P more in future. (~~FD~~ it means I'm not sit
 ### thx for watching:3
 
 <br> <img width="500" src='https://github.com/sbv6v/sbv6v/blob/main/6H9S.gif?raw=true'>
-<p align="right"
+<p align="center"
 <br> byeee
 
 <br>
@@ -72,5 +76,6 @@ that's all I can remember so far :P more in future. (~~FD~~ it means I'm not sit
 
 ![me and my friend not rat](https://github.com/sbv6v/sbv6v/blob/main/HjNL.gif?raw=true')
 <p align="left"
+<br> me and my friend notrat
+<p align="right"
 <br> idk why they is black and white filter im not virt
-
