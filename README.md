@@ -24,7 +24,7 @@ Feel free to contact me on them! ;)
 
 # basic dni
 
-### for genius - if u racist, xenophobic, sinophobic behavior, colorism, orientalist attitudes, homophobic, transphobic, lesbiphobic, biphobic, panphobic attitudes and another LGBTQIA+(phobic), misgendering, mispronouncing, deadnaming, sexism, misogyny, ableism, bullying, religious and cultural Intolerance, If you support the war on Ukraine - pass by. <ins>***Even if you are my friends or family, and your behavior or personality trait is on this list, remember that you are not forgiven, and there are no exceptions.***</ins>
+### for genius - if u racist, xenophobic, sinophobic behavior, colorism and orientalist attitudes, homophobic, transphobic, lesbiphobic, biphobic, panphobic attitudes and another LGBTQIA+(phobic), misgendering, mispronouncing, deadnaming, sexism, misogyny, ableism, bullying, religious and cultural Intolerance, If you support the war on Ukraine - pass by. <ins>***Even if you are my friends or family, and your behavior or personality trait is on this list, remember that you are not forgiven, and there are no exceptions.***</ins>
 -----
 
 <p align="center"
