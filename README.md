@@ -53,7 +53,7 @@ that's all I can remember so far :P more in future. (~~FD~~ it means I'm not sit
 **or check my links under bio xD**
 
 **and the last my kinlist :D**
-<br> <img width="500" src='https://github.com/sbv6v/sbv6v/blob/main/photo_2026-03-15_15-52-15%20(2).jpg?raw=true'>
+<br> <img width="500" src='https://github.com/sbv6v/sbv6v/blob/main/photo_2026-05-06_21-03-58.jpg?raw=true'>
 
 ### thx for watching:3
 
