@@ -79,6 +79,6 @@ that's all I can remember so far :P more in future. (~~FD~~ it means I'm not sit
 <br>
  
 <br> me and my 
-[friend](https://github.com/RatOmlat)
+[friend](https://github.com/RatOmlat) notrat
 <p align="right"
 <br> idk why they are black and white filter im not virt
